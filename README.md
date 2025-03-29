@@ -1,2 +1,2 @@
 # newbie-web
-kuy
+ur mom so ez code
